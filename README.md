@@ -19,4 +19,6 @@
 - - // / // / . .  -- / // / .. / /--
     
 hi.. credits to nonokoko13 on tumblr..!! for the templates!!! sorry im shit at doing readme's 
+
+
 ![tumblr_fa02b46b8b5500870223b2129d7218a9_2497b93b_100](https://github.com/user-attachments/assets/dba2b6d3-fd31-49c1-b984-4e1ec6763c90)
