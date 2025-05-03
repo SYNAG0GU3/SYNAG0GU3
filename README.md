@@ -1,4 +1,4 @@
-
+ 
 ![tumblr_61cc68d13580a203000192501544f8e9_2734fa6d_1280](https://github.com/user-attachments/assets/a947db5a-5e45-44ad-8c3a-d4ca72d4f49a)
 
       
@@ -6,7 +6,7 @@
 
   ═════════════════════════════════ 𓂃 ═════════════════════════════════ ⸝⸝ 
 
-                 ⸝⸝⸝⸝ 𓂃𓂃𓂃 · · ─ ·𖥸· ─ · · 𓂃𓂃𓂃 ⸝⸝⸝⸝
+                        ⸝⸝⸝⸝ 𓂃𓂃𓂃 · · ─ ·𖥸· ─ · · 𓂃𓂃𓂃 ⸝⸝⸝⸝
 
 ![tumblr_61cc68d13580a203000192501544f8e9_2734fa6d_1280](https://github.com/user-attachments/assets/757794b9-2df7-41c5-a8bf-dc8bd39519d8)
 
