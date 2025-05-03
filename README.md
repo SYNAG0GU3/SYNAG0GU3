@@ -17,3 +17,10 @@ hi.. credits to submarine-06 on tumblr..!! for the templates!!! sorry im shit at
 
 
 ![tumblr_fa02b46b8b5500870223b2129d7218a9_2497b93b_100](https://github.com/user-attachments/assets/dba2b6d3-fd31-49c1-b984-4e1ec6763c90)
+
+![wind-archer-wind-archer-cookie](https://github.com/user-attachments/assets/59cfb57b-65b9-4892-874f-b0811ee9474e)  wind archer cookie mu beloved
+
+
+![bjz5xvgsybz81](https://github.com/user-attachments/assets/d78e6feb-adf8-43ef-9893-94cd7040c034)
+
+LOOK AT HIM!!!
